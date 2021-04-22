@@ -1,4 +1,3 @@
 - I'm Interested in Networking
 - I’m currently learning Ethical Hacking
-- I’m looking to collaborate on Hacking Porjects
 - How to reach me? Instagram (promiseslie_) | Discord (Promises#0001)
